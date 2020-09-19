@@ -1,1 +1,1 @@
-1 For all information: https://libartysharetoken.com
+For all information: https://libartysharetoken.com
